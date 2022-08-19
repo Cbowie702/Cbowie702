@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Cbowie702
+- 👋 Hi, I’m Charles my friends call me Chuck
 - 👀 I’m interested in ...Music 
 - 🌱 I’m currently learning ...Coding
 - 💞️ I’m looking to collaborate on ...Projects and learning more 
